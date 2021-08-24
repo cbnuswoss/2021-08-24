@@ -12,7 +12,7 @@
 
 이예진
 
-윤상은 010-9585-4199
+윤상은 tkddms4199@naver.com
 
 최문형 alirce@naver.com
 
