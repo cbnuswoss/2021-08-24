@@ -10,7 +10,7 @@
 
 김지혜- sos13313@naver.com
 
-이예진
+이예진 kzlyj@naver.com
 
 윤상은 tkddms4199@naver.com
 
