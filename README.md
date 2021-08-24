@@ -26,7 +26,7 @@
 
 신주영
 
-김동용
+김동용 - drdragon777@naver.com
 
 김지인
 
