@@ -8,7 +8,7 @@
 
 김지혜
 
-이예진
+이예진 kzlyj@naver.com
 
 윤상은
 
