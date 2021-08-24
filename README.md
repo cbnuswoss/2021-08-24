@@ -24,7 +24,7 @@
 
 이후성
 
-신주영 : happyu9986@gmail.com
+신주영 - happyu9986@gmail.com
 
 김동용 - drdragon777@naver.com
 
